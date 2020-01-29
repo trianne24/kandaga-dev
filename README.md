@@ -1,0 +1,2 @@
+# kandaga-dev
+Goddamn skripshit
