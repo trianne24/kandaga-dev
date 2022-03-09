@@ -1,2 +1,2 @@
 # kandaga-dev
-Goddamn skripshit
+Otw
